@@ -1,0 +1,2 @@
+# teknologi
+teknologi
